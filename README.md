@@ -1,4 +1,4 @@
-OK this is all the info i like playing roblox and like making games in scratch!
+Hi my name is nathan, i like acorn and amiga computers (even tho im underaged.)
 
 ![](https://raw.githubusercontent.com/StarterPlaceWasGone/juhguhwuh/master/profile-summary-card-output/apprentice/0-profile-details.svg)
 
